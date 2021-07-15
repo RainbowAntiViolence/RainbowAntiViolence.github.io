@@ -69,7 +69,7 @@
 66.[20181220_2青年法律人招募镇小律青年法律人诊所式培养计划第四期上线](https://RainbowAntiViolence.github.io/RBarchives2018/20181220_2青年法律人招募镇小律青年法律人诊所式培养计划第四期上线.html)<br>
 67.[20181226_1筹建本地LGBT法律咨询中心的任庭旭律师](https://RainbowAntiViolence.github.io/RBarchives2018/20181226_1筹建本地LGBT法律咨询中心的任庭旭律师.html)<br>
 68.[20181228_1彩虹纪我永远不会后悔我曾经爱过女人（三）](https://RainbowAntiViolence.github.io/RBarchives2018/20181228_1彩虹纪我永远不会后悔我曾经爱过女人（三）.html)<br>
-## 2019<br>
+## 2019
 69.[20190103_12018镇镇律师团那些优秀律师回顾！](https://RainbowAntiViolence.github.io/RBarchives2019/20190103_12018镇镇律师团那些优秀律师回顾！.html)<br>
 70.[20190104_1彩虹纪我永远不会后悔我曾经爱过女人（完）](https://RainbowAntiViolence.github.io/RBarchives2019/20190104_1彩虹纪我永远不会后悔我曾经爱过女人（完）.html)<br>
 71.[20190109_1阅读一天破100+，害怕过年回家的同志必看！](https://RainbowAntiViolence.github.io/RBarchives2019/20190109_1阅读一天破100+，害怕过年回家的同志必看！.html)<br>
@@ -162,7 +162,7 @@
 158.[20191225_1同志朋友，你准备好回家过年了吗](https://RainbowAntiViolence.github.io/RBarchives2019/20191225_1同志朋友，你准备好回家过年了吗.html)<br>
 159.[20191227_1平等就业权，律师来支招](https://RainbowAntiViolence.github.io/RBarchives2019/20191227_1平等就业权，律师来支招.html)<br>
 160.[20191231_1喜公益模拟法庭的“重置与思辨”](https://RainbowAntiViolence.github.io/RBarchives2019/20191231_1喜公益模拟法庭的“重置与思辨”.html)<br>
-## 2020<br>
+## 2020
 161.[20200101_1准备一下，回家过年啦！](https://RainbowAntiViolence.github.io/RBarchives2020-1/20200101_1准备一下，回家过年啦！.html)<br>
 162.[20200108_1调查LGBT+过年回家的“烦心事”](https://RainbowAntiViolence.github.io/RBarchives2020-1/20200108_1调查LGBT+过年回家的“烦心事”.html)<br>
 163.[20200110_1镇镇兄弟会⑧我们一起K歌“跨”年吧](https://RainbowAntiViolence.github.io/RBarchives2020-1/20200110_1镇镇兄弟会⑧我们一起K歌“跨”年吧.html)<br>
@@ -305,7 +305,7 @@
 300.[20201225_1变装国王跨年PARTY，等你来玩！](https://RainbowAntiViolence.github.io/RBarchives2020-2/20201225_1变装国王跨年PARTY，等你来玩！.html)<br>
 301.[20201228_1因疫情原因，“变装国王派对”活动取消](https://RainbowAntiViolence.github.io/RBarchives2020-2/20201228_1因疫情原因，“变装国王派对”活动取消.html)<br>
 302.[20201230_1转载Les也会遭受暴力吗？](https://RainbowAntiViolence.github.io/RBarchives2020-2/20201230_1转载Les也会遭受暴力吗？.html)<br>
-## 2021<br>
+## 2021
 303.[20210101_1总结2020年镇镇陪伴着你的每一天](https://RainbowAntiViolence.github.io/RBarchives2021/20210101_1总结2020年镇镇陪伴着你的每一天.html)<br>
 304.[20210101_2帮转｜活动回顾：什么是“跨性别兄弟”？](https://RainbowAntiViolence.github.io/RBarchives2021/20210101_2帮转｜活动回顾：什么是“跨性别兄弟”？.html)<br>
 305.[20210106_1返乡遭暴力？来地图上寻找求助资源吧！](https://RainbowAntiViolence.github.io/RBarchives2021/20210106_1返乡遭暴力？来地图上寻找求助资源吧！.html)<br>
