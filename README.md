@@ -3,8 +3,8 @@
 
 ## 2018
 - [20180506_2孤军奋战不如抱团取暖镇镇邀你来填资源地图](https://RainbowAntiViolence.github.io/RBarchives2018/20180506_2孤军奋战不如抱团取暖镇镇邀你来填资源地图.html)<br>
-2.[20180506_1517，看见多元，练习说“爱”镇镇的5月活动快递](https://RainbowAntiViolence.github.io/RBarchives2018/20180506_1517，看见多元，练习说“爱”镇镇的5月活动快递.html)<br>
-3.[20180517_1现身·517特稿“曾经我也恐同过”](https://RainbowAntiViolence.github.io/RBarchives2018/20180517_1现身·517特稿“曾经我也恐同过”.html)<br>
+- [20180506_1517，看见多元，练习说“爱”镇镇的5月活动快递](https://RainbowAntiViolence.github.io/RBarchives2018/20180506_1517，看见多元，练习说“爱”镇镇的5月活动快递.html)<br>
+- [20180517_1现身·517特稿“曾经我也恐同过”](https://RainbowAntiViolence.github.io/RBarchives2018/20180517_1现身·517特稿“曾经我也恐同过”.html)<br>
 4.[20180517_2观影交流《日常对话》导演和你一起过517](https://RainbowAntiViolence.github.io/RBarchives2018/20180517_2观影交流《日常对话》导演和你一起过517.html)<br>
 5.[20180520_1我爱你，也想知道如何爱你亲密关系成长小组招募](https://RainbowAntiViolence.github.io/RBarchives2018/20180520_1我爱你，也想知道如何爱你亲密关系成长小组招募.html)<br>
 6.[20180522_1活动回顾法律能保护同性伴侣吗？](https://RainbowAntiViolence.github.io/RBarchives2018/20180522_1活动回顾法律能保护同性伴侣吗？.html)<br>
