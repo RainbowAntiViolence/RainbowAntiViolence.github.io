@@ -1,9 +1,4 @@
-# RainbowAntiViolence.github.io
 ### 镇镇的彩虹公众号备份
-
-# RainbowAntiViolence.github.io
-
-# RainbowAntiViolence.github.io
 
 ## 2021
 - [20210101_1总结2020年镇镇陪伴着你的每一天](https://RainbowAntiViolence.github.io/RBarchives2021/20210101_1总结2020年镇镇陪伴着你的每一天.html)<br>
