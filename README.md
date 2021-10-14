@@ -54,7 +54,6 @@
 - [20210823_1熊猫：当结婚生子不再是人生的必选题，建立一段长期的亲密关系意义何在？](https://RainbowAntiViolence.github.io/RBarchives2021/20210823_1熊猫：当结婚生子不再是人生的必选题，建立一段长期的亲密关系意义何在？.html)<br>
 - [20210824_1捡起拉拉情侣的手机：让我们用沟通保持健康的亲密关系](https://RainbowAntiViolence.github.io/RBarchives2021/20210824_1捡起拉拉情侣的手机：让我们用沟通保持健康的亲密关系.html)<br>
 - [20210831_1“疯批ntxl”的梗不好玩，请正视性少数群体家暴问题](https://RainbowAntiViolence.github.io/RBarchives2021/20210831_1“疯批ntxl”的梗不好玩，请正视性少数群体家暴问题.html)<br>
-- [20210906_1福利干货满满！你们的研究镇镇上线！(https://RainbowAntiViolence.github.io/RBarchives2021/20210906_1福利干货满满！你们的研究镇镇上线！.html)<br>
 - [20210906_1福利干货满满！你们的研究镇镇上线！](https://RainbowAntiViolence.github.io/RBarchives2021/20210906_1福利干货满满！你们的研究镇镇上线！.html)<br>
 - [20210906_2福利你想要的同志资料在这里都可以免费下载！](https://RainbowAntiViolence.github.io/RBarchives2021/20210906_2福利你想要的同志资料在这里都可以免费下载！.html)<br>
 - [20210907_1孩子出柜怎么办？东亚家长反应面面观（文末实用指南）](https://RainbowAntiViolence.github.io/RBarchives2021/20210907_1孩子出柜怎么办？东亚家长反应面面观（文末实用指南）.html)<br>
