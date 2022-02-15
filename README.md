@@ -5,7 +5,7 @@
 - [20220207_1转发原创研究：关于跨性别者的社会态度问卷，等你来填写！](https://RainbowAntiViolence.github.io/RBarchives2022/20220207_1转发原创研究：关于跨性别者的社会态度问卷，等你来填写！.html)<br>
 - [20220128_1彩虹暴力终结所春节期间休假通知](https://RainbowAntiViolence.github.io/RBarchives2022/20220128_1彩虹暴力终结所春节期间休假通知.html)<br>
 - [20220118_1多视频预警！彩虹暴力终结所亲密关系调解室上线啦](https://RainbowAntiViolence.github.io/RBarchives2022/20220118_1多视频预警！彩虹暴力终结所亲密关系调解室上线啦.html)<br>
-- [20220112_1改变妇女权益保障法修订草案征求意见！发出你的声音](https://RainbowAntiViolence.github.io/RBarchives2022/20220112_1改变妇女权益保障法修订草案征求意见！发出你的声音.html)<br>
+- [20220112_1改变妇女权益保障法修订草案征求意见！发出你的声音（*原文已被删除，此为备份*）](https://RainbowAntiViolence.github.io/RBarchives2022/20220112_1改变妇女权益保障法修订草案征求意见！发出你的声音.pdf)<br>
 - [20220111_1花有性别吗？跨性别兄弟原创歌曲花程式发布转发](https://RainbowAntiViolence.github.io/RBarchives2022/20220111_1花有性别吗？跨性别兄弟原创歌曲花程式发布转发.html)<br>
 - [20220104_1从les到ftm，你好！加油！丨自洽兄弟③](https://RainbowAntiViolence.github.io/RBarchives2022/20220104_1从les到ftm，你好！加油！丨自洽兄弟③.html)<br>
 
