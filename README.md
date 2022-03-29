@@ -4,7 +4,7 @@
 - [20220324_1镇镇年报喜欢您来，彩虹暴力终结所社群活动大起底](https://RainbowAntiViolence.github.io/RBarchives2022/20220324_1镇镇年报喜欢您来，彩虹暴力终结所社群活动大起底.html)<br>
 - [20220318_1强制扭转治疗、同性伴侣暴力、跨性别职场歧视镇镇如何提供暴力干预服务？](https://RainbowAntiViolence.github.io/RBarchives2022/20220318_1强制扭转治疗、同性伴侣暴力、跨性别职场歧视镇镇如何提供暴力干预服务？.html)<br>
 - [20220317_1学历学位性别信息修改调查问卷来啦转发](https://RainbowAntiViolence.github.io/RBarchives2022/20220317_1学历学位性别信息修改调查问卷来啦转发.html)<br>
-- [20220316_1转发了解多元性别公益，快来同语·平等多元开放日！ 活动推荐](https://RainbowAntiViolence.github.io/RBarchives2022/20220316_1转发了解多元性别公益，快来【同语 · 平等多元开放日】！ 活动推荐转发  了解多元性别公益，快来【同语 · 平等多元开放日】！ 活动推荐转发  了解多元性别公益，快来【同语 · 平等多元开放日】！ 活动推荐转发了解多元性别公益，快来【同语 · 平等多元开放日】！ 活动推荐.html)<br>
+- [20220316_1转发了解多元性别公益，快来同语·平等多元开放日！活动推荐](https://RainbowAntiViolence.github.io/RBarchives2022/20220316_1转发了解多元性别公益同语平等多元开放日.html)<br>
 - [20220312_1镇镇在身边丨手把手教你如何零门槛求助镇镇](https://RainbowAntiViolence.github.io/RBarchives2022/20220312_1镇镇在身边丨手把手教你如何零门槛求助镇镇.html)<br>
 - [20220311_1镇镇皮下大揭秘！来认识一下支持你的每个ta丨彩虹暴力终结所服务团队](https://RainbowAntiViolence.github.io/RBarchives2022/20220311_1镇镇皮下大揭秘！来认识一下支持你的每个ta丨彩虹暴力终结所服务团队.html)<br>
 - [20220308_1彩虹暴力终结所祝大家国际妇女节快乐](https://RainbowAntiViolence.github.io/RBarchives2022/20220308_1彩虹暴力终结所祝大家国际妇女节快乐.html)<br>
