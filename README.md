@@ -1,6 +1,12 @@
 ### 🍊镇镇的彩虹公众号备份（2022/6/12）
 
 ## 2022
+- [20220708_1为什么我认为“恐无”已然存在？｜无性恋之声](https://RainbowAntiViolence.github.io/RBarchives2022-2/20220708_1为什么我认为“恐无”已然存在？｜无性恋之声.html)<br>
+- [20220706_1招聘同语传播兼职持续开放申请！共创多元性别公益传播](https://RainbowAntiViolence.github.io/RBarchives2022-2/20220706_1招聘同语传播兼职持续开放申请！共创多元性别公益传播.html)<br>
+- [20220701_1多元性别遭遇校园欺凌，为什么不建议告老师？丨镇镇解题](https://RainbowAntiViolence.github.io/RBarchives2022-2/20220701_1多元性别遭遇校园欺凌，为什么不建议告老师？丨镇镇解题.html)<br>
+- [20220626_1尊重他人命运，放下助人情结？不！这个“家务事”我就要管丨做题测测你掌握多少多元性别反暴力知识](https://RainbowAntiViolence.github.io/RBarchives2022-2/20220626_1尊重他人命运，放下助人情结？不！这个“家务事”我就要管丨做题测测你掌握多少多元性别反暴力知识.html)<br>
+- [20220625_16年处理500余起多元性别暴力事件，这仅仅是冰山一角｜彩虹暴力终结所](https://RainbowAntiViolence.github.io/RBarchives2022-2/20220625_16年处理500余起多元性别暴力事件，这仅仅是冰山一角｜彩虹暴力终结所.html)<br>
+- [20220624_1我出柜，对方竟祝福我“早日康复”丨那些五花八门的多元性别歧视与暴力](https://RainbowAntiViolence.github.io/RBarchives2022-2/20220624_1我出柜，对方竟祝福我“早日康复”丨那些五花八门的多元性别歧视与暴力.html)<br>
 - [20220606_1荣誉时刻丨镇镇助力北京大学拿下全国社工案例大赛一等奖](https://RainbowAntiViolence.github.io/RBarchives2022-2/20220606_1荣誉时刻丨镇镇助力北京大学拿下全国社工案例大赛一等奖.html)<br>
 - [20220519_1线上活动推荐因为女人，不Zhi女人：看见女性健康的多样异想健开02](https://RainbowAntiViolence.github.io/RBarchives2022-2/20220519_1线上活动推荐因为女人，不Zhi女人：看见女性健康的多样异想健开02.html)<br>
 - [20220512_1别的女孩：隐秘的角落，被家暴的性少数群体转发](https://RainbowAntiViolence.github.io/RBarchives2022-2/20220512_1别的女孩：隐秘的角落，被家暴的性少数群体转发.html)<br>
