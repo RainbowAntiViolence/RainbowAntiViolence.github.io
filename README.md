@@ -1,6 +1,10 @@
 ### 🍊镇镇的彩虹公众号备份（2022/7/11）
 
 ## 2022
+- [20220713_12022年，第五版「多元性别家暴干预服务资源地图」，发布！](https://RainbowAntiViolence.github.io/RBarchives2022-2/20220713_12022年，第五版「多元性别家暴干预服务资源地图」，发布！.html)<br>
+
+- [20220712_1“变性手术后后悔”上热搜：恐跨迷思之外，看到跨性别青少年现实境遇](https://RainbowAntiViolence.github.io/RBarchives2022-2/220220712_1“变性手术后后悔”上热搜：恐跨迷思之外，看到跨性别青少年现实境遇.html)<br>
+
 - [20220708_1为什么我认为“恐无”已然存在？｜无性恋之声](https://RainbowAntiViolence.github.io/RBarchives2022-2/20220708_1为什么我认为“恐无”已然存在？｜无性恋之声.html)<br>
 - [20220706_1招聘同语传播兼职持续开放申请！共创多元性别公益传播](https://RainbowAntiViolence.github.io/RBarchives2022-2/20220706_1招聘同语传播兼职持续开放申请！共创多元性别公益传播.html)<br>
 - [20220701_1多元性别遭遇校园欺凌，为什么不建议告老师？丨镇镇解题](https://RainbowAntiViolence.github.io/RBarchives2022-2/20220701_1多元性别遭遇校园欺凌，为什么不建议告老师？丨镇镇解题.html)<br>
