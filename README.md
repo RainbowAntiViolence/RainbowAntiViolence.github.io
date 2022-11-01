@@ -1,6 +1,13 @@
-### 🍊镇镇的彩虹公众号备份（2022/10/01）
+### 🍊镇镇的彩虹公众号备份（2022/11/01）
 
 ## 2022
+- [20221028_1性别暴力有关系｜镇镇栏目精选Vol.4](https://RainbowAntiViolence.github.io/RBarchives2022-2/20221028_1性别暴力有关系｜镇镇栏目精选Vol.4.html)<br>
+- [20221027_12022.11.25「消除性别暴力16日行动」宣传歌曲MV演员招募！](https://RainbowAntiViolence.github.io/RBarchives2022-2/20221027_12022.11.25「消除性别暴力16日行动」宣传歌曲MV演员招募！.html)<br>
+- [20221026_1如何更有效地获得法律的帮助？教你收集证据的小贴士指南来啦～](https://RainbowAntiViolence.github.io/RBarchives2022-2/20221026_1如何更有效地获得法律的帮助？教你收集证据的小贴士指南来啦～.html)<br>
+- [20221021_1如何防治基于性别身份的校园欺凌？镇镇栏目精选Vol.3](https://RainbowAntiViolence.github.io/RBarchives2022-2/20221021_1如何防治基于性别身份的校园欺凌？镇镇栏目精选Vol.3.html)<br>
+- [20221020_12022.11.25「消除性别暴力16日行动」宣传歌曲的歌词征集开启啦](https://RainbowAntiViolence.github.io/RBarchives2022-2/20221020_12022.11.25「消除性别暴力16日行动」宣传歌曲的歌词征集开启啦.html)<br>
+- [20221014_1知法用法：多元性别的法律实用课堂｜镇镇栏目精选Vol.2](https://RainbowAntiViolence.github.io/RBarchives2022-2/20221014_1知法用法：多元性别的法律实用课堂｜镇镇栏目精选Vol.2.html)<br>
+- [20221008_1大型网友见面现场？镇镇皮下去桂林秋游啦｜彩虹暴力终结所服务者团建回顾](https://RainbowAntiViolence.github.io/RBarchives2022-2/20221008_1大型网友见面现场？镇镇皮下去桂林秋游啦｜彩虹暴力终结所服务者团建回顾.html)<br>
 - [20220930_1专业化服务指南&多元性别研究资料包｜镇镇栏目精选Vol.1](https://RainbowAntiViolence.github.io/RBarchives2022-2/20220930_1专业化服务指南amp;多元性别研究资料包｜镇镇栏目精选Vol.1.html)<br>
 - [20220917_1“我伤害你是因为我爱你”｜拉拉们分手的决心](https://RainbowAntiViolence.github.io/RBarchives2022-2/20220917_1“我伤害你是因为我爱你”｜拉拉们分手的决心.html)<br>
 - [20220808_1转载｜「异想健开」-熊猫：性少数女性如何面对可能的家庭暴力](https://RainbowAntiViolence.github.io/RBarchives2022-2/20220808_1转载｜「异想健开」-熊猫：性少数女性如何面对可能的家庭暴力.html)<br>
