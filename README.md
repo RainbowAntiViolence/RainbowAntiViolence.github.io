@@ -1,6 +1,10 @@
-### 🍊镇镇的彩虹公众号备份（2022/11/01）
+### 🍊镇镇的彩虹公众号备份（2022/11/8）
 
 ## 2022
+- [20221118_1不一样，都一样之【性别暴力的校外干预与防治】｜反暴力16日线上沙龙①](https://RainbowAntiViolence.github.io/RBarchives2022-2/20221118_1不一样，都一样之【性别暴力的校外干预与防治】｜反暴力16日线上沙龙①.html)<br>
+- [20221111_1开心谈恋爱，理性谈分手：应对亲密关系暴力的一百招｜镇镇栏目精选Vol.6](https://RainbowAntiViolence.github.io/RBarchives2022-2/20221111_1开心谈恋爱，理性谈分手：应对亲密关系暴力的一百招｜镇镇栏目精选Vol.6.html)<br>
+- [20221104_1掩于温情之下的伤害：“家空间”里的暴力终结指南｜镇镇栏目精选Vol.5](https://RainbowAntiViolence.github.io/RBarchives2022-2/20221104_1掩于温情之下的伤害：“家空间”里的暴力终结指南｜镇镇栏目精选Vol.5.html)<br>
+- [20221103_1国际反校园欺凌日预防SOGIE欺凌，从多元性别平等教育开始](https://RainbowAntiViolence.github.io/RBarchives2022-2/20221103_1国际反校园欺凌日预防SOGIE欺凌，从多元性别平等教育开始.html)<br>
 - [20221028_1性别暴力有关系｜镇镇栏目精选Vol.4](https://RainbowAntiViolence.github.io/RBarchives2022-2/20221028_1性别暴力有关系｜镇镇栏目精选Vol.4.html)<br>
 - [20221027_12022.11.25「消除性别暴力16日行动」宣传歌曲MV演员招募！](https://RainbowAntiViolence.github.io/RBarchives2022-2/20221027_12022.11.25「消除性别暴力16日行动」宣传歌曲MV演员招募！.html)<br>
 - [20221026_1如何更有效地获得法律的帮助？教你收集证据的小贴士指南来啦～](https://RainbowAntiViolence.github.io/RBarchives2022-2/20221026_1如何更有效地获得法律的帮助？教你收集证据的小贴士指南来啦～.html)<br>
