@@ -1,4 +1,4 @@
-## 🍊镇镇的彩虹公众号备份
+## 🍊镇镇的彩虹
 嗨！这里是橘里橘气的镇镇 🙌（2023/01/14更新）
 
 <!-- - [x](https://RainbowAntiViolence.github.io/RBarchives2023/x.html)<br> -->
