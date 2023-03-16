@@ -4,9 +4,7 @@
 <!-- - [x](https://RainbowAntiViolence.github.io/RBarchives2023-2/x.html)<br> -->
 
 ### 2023
-- [20230304_1国内首部跨性别兄弟群像纪录片逆向奔跑的兄弟先行预告，发布！](https://RainbowAntiViolence.github.io/RBarchives2023-2/20230304_1国内首部跨性别兄弟群像纪录片逆向奔跑的兄弟先行预告，发布！.html)<br>
-- [20230302_1信息征集！性多元友善心理咨询师、医疗从业者资源地图20转载](https://RainbowAntiViolence.github.io/RBarchives2023-2/20230302_1信息征集！性多元友善心理咨询师、医疗从业者资源地图20转载.html)<br>
-- [20230216_1有偿招募！彩虹暴力终结所“反性别暴力”主题歌曲《15岁》mv开拍啦！](https://RainbowAntiViolence.github.io/RBarchives2023-2/20230216_1有偿招募！彩虹暴力终结所“反性别暴力”主题歌曲《15岁》mv开拍啦！.html)<br>
+
 - [20230213_1招聘｜同语现推出春季实习生套餐！致力多元性别平等，和我们一起行动！](https://RainbowAntiViolence.github.io/RBarchives2023/20230213_1招聘｜同语现推出春季实习生套餐！致力多元性别平等，和我们一起行动！.html)<br>
 - [20230209_1一个术前跨男在港胜诉，可以改证了！｜速报](https://RainbowAntiViolence.github.io/RBarchives2023/20230209_1一个术前跨男在港胜诉，可以改证了！｜速报.html)<br>
 - [20230206_1招聘｜成为镇镇实习生，一起对性别暴力说“不”！](https://RainbowAntiViolence.github.io/RBarchives2023/20230206_1招聘｜成为镇镇实习生，一起对性别暴力说“不”！.html)<br>
