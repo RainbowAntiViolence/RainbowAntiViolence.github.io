@@ -4,7 +4,7 @@
 <!-- - [x](https://RainbowAntiViolence.github.io/RBarchives2023/x.html)<br> -->
 
 ### 2023
-- [20230505_1中国多元性别女性的生活与权益研究报告全文即将发布，敬请期待！](https://RainbowAntiViolence.github.io/RBarchives2023/20230505_1中国多元性别女性的生活与权益研究报告全文即将发布，敬请期待！.html)<br>
+- [20230505_1中国多元性别女性的生活与权益研究报告全文即将发布，敬请期待！](https://RainbowAntiViolence.github.io/RBarchives2023/酷女报告.jpeg)<br>
 - [20230427_1阳刚的T总施暴？柔弱的P总被害？一文带你了解TP陷阱里的亲密关系暴力](https://RainbowAntiViolence.github.io/RBarchives2023/20230427_1阳刚的T总施暴？柔弱的P总被害？一文带你了解TP陷阱里的亲密关系暴力.html)<br>
 - [20230426_1我是女同，也是女同可见日](https://RainbowAntiViolence.github.io/RBarchives2023/20230426_1我是女同，也是女同可见日.jpeg)<br>
 - [20230421_1分手遭暴？微博曝光？警察不管？给多元性别伙伴的零基础报案指南](https://RainbowAntiViolence.github.io/RBarchives2023/20230421_1分手遭暴？微博曝光？警察不管？给多元性别伙伴的零基础报案指南.html)<br>
