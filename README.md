@@ -1,5 +1,5 @@
 ## 🍊镇镇的彩虹
-嗨！这里是橘里橘气的镇镇 🙌（2023/06/08更新）
+嗨！这里是橘里橘气的镇镇 🙌（2023/06/15更新）
 
 <!-- - [x](https://RainbowAntiViolence.github.io/RBarchives2023/x.html)<br> -->
 
