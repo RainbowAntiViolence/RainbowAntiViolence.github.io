@@ -5,6 +5,7 @@
 
 ### 2023
 -  [20230614_1以为坦诚相见，却掉入桃色陷阱？教你应对网络视讯中的危机](https://RainbowAntiViolence.github.io/RBarchives2023/20230614_1以为坦诚相见，却掉入桃色陷阱？教你应对网络视讯中的危机)<br>
+-  [20230612_1招聘成为传播&活动实习生，和镇镇一起拥抱这个夏天吧！](https://RainbowAntiViolence.github.io/RBarchives2023/20230612_1招聘成为传播&活动实习生，和镇镇一起拥抱这个夏天吧！)<br>
 -  [20230601_1镇镇推荐丨从影视出发，愿你我ta不再恐同、恐跨、恐双](https://RainbowAntiViolence.github.io/RBarchives2023/20230601_1镇镇推荐丨从影视出发，愿你我ta不再恐同、恐跨、恐双.html)<br>
 - [20230524_1镇镇推荐丨从文字出发，愿你我ta不再恐同、恐跨、恐双](https://RainbowAntiViolence.github.io/RBarchives2023/20230524_1镇镇推荐丨从文字出发，愿你我ta不再恐同、恐跨、恐双.html)<br>
 - [20230505_1中国多元性别女性的生活与权益研究报告全文即将发布，敬请期待！](https://RainbowAntiViolence.github.io/RBarchives2023/酷女报告.jpeg)<br>
