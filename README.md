@@ -4,6 +4,7 @@
 <!-- - [x](https://RainbowAntiViolence.github.io/RBarchives2023/x.html)<br> -->
 
 ### 2023
+-  [20230909_1一份指南，支持还在做事的公益组织](https://RainbowAntiViolence.github.io/RBarchives2023/20230909_1一份指南，支持还在做事的公益组织.pdf)<br>
 -  [20230908_2转载南京青禾招全职啦！多元友善空间搭建与活动策划，期待热心性别公益的你](https://RainbowAntiViolence.github.io/RBarchives2023/20230908_2转载南京青禾招全职啦！多元友善空间搭建与活动策划，期待热心性别公益的你.html)<br>
 -  [20230908_199公益日最后两天！10点开启配捐通道，快来助力性别公益！](https://RainbowAntiViolence.github.io/RBarchives2023/20230908_199公益日最后两天！10点开启配捐通道，快来助力性别公益！.pdf)<br>
 -  [20230906_1助力性别平等！99公益日懒人包性别草根筹款项目合辑来了](https://RainbowAntiViolence.github.io/RBarchives2023/20230906_1助力性别平等！99公益日懒人包性别草根筹款项目合辑来了.html)<br>
