@@ -4,6 +4,12 @@
 <!-- - [x](https://RainbowAntiViolence.github.io/RBarchives2023/x.html)<br> -->
 
 ### 2023
+-  [20230908_2转载南京青禾招全职啦！多元友善空间搭建与活动策划，期待热心性别公益的你](https://RainbowAntiViolence.github.io/RBarchives2023/20230908_2转载南京青禾招全职啦！多元友善空间搭建与活动策划，期待热心性别公益的你.html)<br>
+-  [20230908_199公益日最后两天！10点开启配捐通道，快来助力性别公益！](https://RainbowAntiViolence.github.io/RBarchives2023/20230908_199公益日最后两天！10点开启配捐通道，快来助力性别公益！.pdf)<br>
+-  [20230906_1助力性别平等！99公益日懒人包性别草根筹款项目合辑来了](https://RainbowAntiViolence.github.io/RBarchives2023/20230906_1助力性别平等！99公益日懒人包性别草根筹款项目合辑来了.html)<br>
+-  [20230901_1一个月后，芭比的讨论结束了吗？](https://RainbowAntiViolence.github.io/RBarchives2023/20230901_1一个月后，芭比的讨论结束了吗？.html)<br>
+-  [20230825_1对多元性别传播感兴趣？一份工作机会已送达！](https://RainbowAntiViolence.github.io/RBarchives2023/20230825_1对多元性别传播感兴趣？一份工作机会已送达！.html)<br>
+-  [20230821_1性别公益需要你！99公益日伙伴招募开启内含8月资源简报](https://RainbowAntiViolence.github.io/RBarchives2023/20230821_1性别公益需要你！99公益日伙伴招募开启内含8月资源简报.html)<br>
 -  [20230818_1NoQueerNoSports丨2023女足世界杯中的酷儿身影](https://RainbowAntiViolence.github.io/RBarchives2023/20230818_1NoQueerNoSports丨2023女足世界杯中的酷儿身影.html)<br>
 -  [20230815_1法律人看过来！这里有一份多元性别友好实习](https://RainbowAntiViolence.github.io/RBarchives2023/20230815_1法律人看过来！这里有一份多元性别友好实习.html)<br>
 -  [20230811_1性别二元着装和公共设施问卷图片](https://RainbowAntiViolence.github.io/RBarchives2023/20230811_1性别二元着装和公共设施问卷图片.png)<br>
