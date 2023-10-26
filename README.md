@@ -4,9 +4,10 @@
 <!-- - [x](https://RainbowAntiViolence.github.io/RBarchives2023/x.html)<br> -->
 
 ### 2023
--  [20231019_3转载青禾招聘性健康检测主管全职amp主理人助理实习生，期待热心性健康公益的你](https://RainbowAntiViolence.github.io/RBarchives2023/20231019_3转载青禾招聘性健康检测主管全职amp主理人助理实习生，期待热心性健康公益的你.html)<br>
--  [20231019_1我的性别认同是沃尔玛购物袋，为何令人感到冒犯？](https://RainbowAntiViolence.github.io/RBarchives2023/20231019_1我的性别认同是沃尔玛购物袋，为何令人感到冒犯？.html)<br>
--  [20231012_1实习机会掉落性与性别公益组织可持续发展需要你！](https://RainbowAntiViolence.github.io/RBarchives2023/20231012_1实习机会掉落性与性别公益组织可持续发展需要你！.html)<br>
+-  [20231024_4镇镇毛毯周边开启预售！陪你暖暖过冬](https://RainbowAntiViolence.github.io/RBarchives2023/20231024_4镇镇毛毯周边开启预售！陪你暖暖过冬.html)<br>
+-  [20231019_3“我的性别认同是沃尔玛购物袋”，为何令人感到冒犯？](https://RainbowAntiViolence.github.io/RBarchives2023/20231019_3“我的性别认同是沃尔玛购物袋”，为何令人感到冒犯？.html)<br>
+-  [20231019_2实习机会掉落性与性别公益组织可持续发展需要你！](https://RainbowAntiViolence.github.io/RBarchives2023/20231019_2实习机会掉落性与性别公益组织可持续发展需要你！.html)<br>
+-  [20231019_1转载青禾招聘性健康检测主管全职主理人助理实习生，期待热心性健康公益的你](https://RainbowAntiViolence.github.io/RBarchives2023/20231019_1转载青禾招聘性健康检测主管全职主理人助理实习生，期待热心性健康公益的你.html)<br>
 -  [20230928_1访谈对象招募丨网络约会恋爱暴力调查研究欢迎多元性别伙伴们参加！](https://RainbowAntiViolence.github.io/RBarchives2023/20230928_1访谈对象招募丨网络约会恋爱暴力调查研究欢迎多元性别伙伴们参加！.html)<br>
 -  [20230921_1“99”公益日落下帷幕，性别公益不会止步](https://RainbowAntiViolence.github.io/RBarchives2023/20230921_1“99”公益日落下帷幕，性别公益不会止步.html)<br>
 -  [20230916_1公益里的性别：看见受暴妇女、残障女性和流动全职母亲的挣扎](https://RainbowAntiViolence.github.io/RBarchives2023/20230916_1公益里的性别：看见受暴妇女、残障女性和流动全职母亲的挣扎.html)<br>
