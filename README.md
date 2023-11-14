@@ -4,6 +4,11 @@
 <!-- - [x](https://RainbowAntiViolence.github.io/RBarchives2023/x.html)<br> -->
 
 ### 2023
+-  [20231113_5转载小悟生心理课程运营实习生媒体部实习生招募！共创多元友好生活！](https://RainbowAntiViolence.github.io/RBarchives2023/20231113_5转载小悟生心理课程运营实习生媒体部实习生招募！共创多元友好生活！.html)<br>
+-  [20231107_4男团牵手就是一对，女团贴贴还是姐妹？展演亲密：KPOP中的同性关系再现](https://RainbowAntiViolence.github.io/RBarchives2023/20231107_4男团牵手就是一对，女团贴贴还是姐妹？展演亲密：KPOP中的同性关系再现.html)<br>
+-  [20231103_百鬼夜行，罔两问景，万圣节也能“酷儿快乐”！](https://RainbowAntiViolence.github.io/RBarchives2023/20231103_百鬼夜行，罔两问景，万圣节也能“酷儿快乐”！.pdf)<br>
+-  [20231102_2招聘对多元性别暴力干预感兴趣的你，这里有一份宝贵的实习机会！](https://RainbowAntiViolence.github.io/RBarchives2023/20231102_2招聘对多元性别暴力干预感兴趣的你，这里有一份宝贵的实习机会！.html)<br>
+-  [20231026_别再对多元性别群体进行性缘绑架了!](https://RainbowAntiViolence.github.io/RBarchives2023/20231026_别再对多元性别群体进行性缘绑架了!.pdf)<br>
 -  [20231024_4镇镇毛毯周边开启预售！陪你暖暖过冬](https://RainbowAntiViolence.github.io/RBarchives2023/20231024_4镇镇毛毯周边开启预售！陪你暖暖过冬.html)<br>
 -  [20231019_3“我的性别认同是沃尔玛购物袋”，为何令人感到冒犯？](https://RainbowAntiViolence.github.io/RBarchives2023/20231019_3“我的性别认同是沃尔玛购物袋”，为何令人感到冒犯？.pdf)<br>
 -  [20231019_2实习机会掉落性与性别公益组织可持续发展需要你！](https://RainbowAntiViolence.github.io/RBarchives2023/20231019_2实习机会掉落性与性别公益组织可持续发展需要你！.html)<br>
