@@ -4,6 +4,9 @@
 <!-- - [x](https://RainbowAntiViolence.github.io/RBarchives2023/x.html)<br> -->
 
 ### 2023
+-  [20231205_3再见，恐怖爱人热拉x彩虹暴力终结所](https://RainbowAntiViolence.github.io/RBarchives2023/20231205_3再见，恐怖爱人热拉x彩虹暴力终结所.html)<br>
+-  [20231128_2在Bot号投稿提问却找不到答案？镇镇树洞为你开启啦！](https://RainbowAntiViolence.github.io/RBarchives2023/20231128_2在Bot号投稿提问却找不到答案？镇镇树洞为你开启啦！.html)<br>
+-  [20231120_1促进基金会多元、平等、包容DEI理念之精神健康篇](https://RainbowAntiViolence.github.io/RBarchives2023/20231120_1促进基金会多元、平等、包容DEI理念之精神健康篇.html)<br>
 -  [20231113_5转载小悟生心理课程运营实习生媒体部实习生招募！共创多元友好生活！](https://RainbowAntiViolence.github.io/RBarchives2023/20231113_5转载小悟生心理课程运营实习生媒体部实习生招募！共创多元友好生活！.html)<br>
 -  [20231107_4男团牵手就是一对，女团贴贴还是姐妹？展演亲密：KPOP中的同性关系再现](https://RainbowAntiViolence.github.io/RBarchives2023/20231107_4男团牵手就是一对，女团贴贴还是姐妹？展演亲密：KPOP中的同性关系再现.html)<br>
 -  [20231103_百鬼夜行，罔两问景，万圣节也能“酷儿快乐”！](https://RainbowAntiViolence.github.io/RBarchives2023/20231103_百鬼夜行，罔两问景，万圣节也能“酷儿快乐”！.pdf)<br>
