@@ -4,6 +4,8 @@
 <!-- - [x](https://RainbowAntiViolence.github.io/RBarchives2023/x.html)<br> -->
 
 ### 2023
+-  [20231213_许光汉VOGUE造型引争议——“越发gay里gay气，还我清爽男高”？](https://RainbowAntiViolence.github.io/RBarchives2023/20231213_许光汉VOGUE造型引争议——“越发gay里gay气，还我清爽男高”？.pdf)<br>
+-  [20231212_双十二限时折扣！镇镇毛毯第二件八折，喜欢就赶快下单！](https://RainbowAntiViolence.github.io/RBarchives2023/20231212_双十二限时折扣！镇镇毛毯第二件八折，喜欢就赶快下单！.pdf)<br>
 -  [20231205_3再见，恐怖爱人热拉x彩虹暴力终结所](https://RainbowAntiViolence.github.io/RBarchives2023/20231205_3再见，恐怖爱人热拉x彩虹暴力终结所.html)<br>
 -  [20231128_2在Bot号投稿提问却找不到答案？镇镇树洞为你开启啦！](https://RainbowAntiViolence.github.io/RBarchives2023/20231128_2在Bot号投稿提问却找不到答案？镇镇树洞为你开启啦！.html)<br>
 -  [20231120_1促进基金会多元、平等、包容DEI理念之精神健康篇](https://RainbowAntiViolence.github.io/RBarchives2023/20231120_1促进基金会多元、平等、包容DEI理念之精神健康篇.html)<br>
