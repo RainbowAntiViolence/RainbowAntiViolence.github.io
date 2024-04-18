@@ -18,7 +18,7 @@
 - [20240219_1当我分别以拉拉和跨性别男性的身份出柜酷儿出柜故事③](https://RainbowAntiViolence.github.io/RBarchives2024/20240219_1当我分别以拉拉和跨性别男性的身份出柜酷儿出柜故事③.html)<br>
 - [20240216_1想让父母看见真实的我，是自私的吗？酷儿出柜故事②](https://RainbowAntiViolence.github.io/RBarchives2024/20240216_1想让父母看见真实的我，是自私的吗？酷儿出柜故事②.html)<br>
 - [20240213_1从片面的标签，到动态的生活酷儿出柜故事①](https://RainbowAntiViolence.github.io/RBarchives2024/20240213_1从片面的标签，到动态的生活酷儿出柜故事①.html)<br>
-- [20240206_1适合酷儿体质的上上签运是？2024，镇镇会继续守护多元性别伙伴！](https://RainbowAntiViolence.github.io/RBarchives2024/20240206_1适合酷儿体质的上上签运是？2024，镇镇会继续守护多元性别伙伴！.pdf)<br>
+- [20240206_1适合酷儿体质的上上签运是？2024，镇镇会继续守护多元性别伙伴！](https://RainbowAntiViolence.github.io/RBarchives2024//20240206_1适合酷儿体质的上上签运是？2024，镇镇会继续守护多元性别伙伴！.pdf)<br>
 - [20240206_1适合酷儿体质的上上签运是？抽签动图.gif](https://RainbowAntiViolence.github.io/RBarchives2024/20240206_1适合酷儿体质的上上签运是？抽签动图.gif)<br>
 - [20240206_22024彩虹暴力终结所春季放假通知](https://RainbowAntiViolence.github.io/RBarchives2024/20240206_22024彩虹暴力终结所春季放假通知.html)<br>
 
