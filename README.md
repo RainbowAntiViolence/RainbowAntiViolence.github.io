@@ -2,6 +2,8 @@
 嗨！这里是橘里橘气的镇镇 🙌（2023/12/27更新）
 
 <!-- - [x](https://RainbowAntiViolence.github.io/RBarchives2023/x.html)<br> -->
+### 2024
+- [20240206_22024彩虹暴力终结所春季放假通知](https://github.com/RainbowAntiViolence/RainbowAntiViolence.github.io/blob/main/RBarchives2024/20240206_22024彩虹暴力终结所春季放假通知.html)<br>
 
 ### 2023
 -  [20231213_许光汉VOGUE造型引争议——“越发gay里gay气，还我清爽男高”？](https://RainbowAntiViolence.github.io/RBarchives2023/20231213_许光汉VOGUE造型引争议——“越发gay里gay气，还我清爽男高”？.pdf)<br>
