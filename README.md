@@ -3,21 +3,21 @@
 
 <!-- - [x](https://RainbowAntiViolence.github.io/RBarchives2023/x.html)<br> -->
 ### 2024
-- [20240206_22024彩虹暴力终结所春季放假通知](https://github.com/RainbowAntiViolence/RainbowAntiViolence.github.io/RBarchives2024/20240206_22024彩虹暴力终结所春季放假通知.html)<br>
-- [20240213_1从片面的标签，到动态的生活酷儿出柜故事①](https://github.com/RainbowAntiViolence/RainbowAntiViolence.github.io/RBarchives2024/20240213_1从片面的标签，到动态的生活酷儿出柜故事①.html)<br>
-- [20240216_1想让父母看见真实的我，是自私的吗？酷儿出柜故事②](https://github.com/RainbowAntiViolence/RainbowAntiViolence.github.io/RBarchives2024/20240216_1想让父母看见真实的我，是自私的吗？酷儿出柜故事②.html)<br>
-- [20240219_1当我分别以拉拉和跨性别男性的身份出柜酷儿出柜故事③](https://github.com/RainbowAntiViolence/RainbowAntiViolence.github.io/RBarchives2024/20240219_1当我分别以拉拉和跨性别男性的身份出柜酷儿出柜故事③.html)<br>
-- [20240226_2转载小悟生心理媒体部实习生招募，用你的内容发出多元之声！](https://github.com/RainbowAntiViolence/RainbowAntiViolence.github.io/RBarchives2024/20240226_2转载小悟生心理媒体部实习生招募，用你的内容发出多元之声！.html)<br>
-- [20240229_1男同需要考虑的病，能不能别甩锅给异性恋？](https://github.com/RainbowAntiViolence/RainbowAntiViolence.github.io/RBarchives2024/20240229_1男同需要考虑的病，能不能别甩锅给异性恋？.pdf)<br>
-- [20240304_1我想用音乐作为载体，帮助到更多酷儿伙伴们。酷儿出柜故事⑤](https://github.com/RainbowAntiViolence/RainbowAntiViolence.github.io/RBarchives2024/20240304_1我想用音乐作为载体，帮助到更多酷儿伙伴们。酷儿出柜故事⑤.html)<br>
-- [20240321_1转载南京青禾招聘性健康检测、财务行政、宣传设计、性教育课程开发，期待热心性与性别公益的你](https://github.com/RainbowAntiViolence/RainbowAntiViolence.github.io/RBarchives2024/20240321_1转载南京青禾招聘性健康检测、财务行政、宣传设计、性教育课程开发，期待热心性与性别公益的你.html)<br>
-- [20240321_2转载招募异想健开性与性别健康友善医疗服务论坛暨性别友善空间交流会邀你来玩](https://github.com/RainbowAntiViolence/RainbowAntiViolence.github.io/RBarchives2024/20240321_2转载招募异想健开性与性别健康友善医疗服务论坛暨性别友善空间交流会邀你来玩.html)<br>
-- [20240325_1转载上海反家暴法八周年报告：保护令核发难，亟需地方立法](https://github.com/RainbowAntiViolence/RainbowAntiViolence.github.io/RBarchives2024/20240325_1转载上海反家暴法八周年报告：保护令核发难，亟需地方立法.html)<br>
-- [20240325_2转载人类性学来了！](https://github.com/RainbowAntiViolence/RainbowAntiViolence.github.io/RBarchives2024/20240325_2转载人类性学来了！.html)<br>
-- [20240327_1线上沙龙投资性别平等性别公益资助研究报告发布](https://github.com/RainbowAntiViolence/RainbowAntiViolence.github.io/RBarchives2024/20240327_1线上沙龙投资性别平等性别公益资助研究报告发布.html)<br>
-- [20240401_1向暴力说不！多元性别反暴力干预服务案例手册发布啦！](https://github.com/RainbowAntiViolence/RainbowAntiViolence.github.io/RBarchives2024/20240401_1向暴力说不！多元性别反暴力干预服务案例手册发布啦！.pdf)<br>
-- [20240409_1传播实习生招聘柳絮纷飞，欢迎加入镇镇一起过春天！](https://github.com/RainbowAntiViolence/RainbowAntiViolence.github.io/RBarchives2024/20240409_1传播实习生招聘柳絮纷飞，欢迎加入镇镇一起过春天！.html)<br>
-- [20240411_1想为酷儿群体提供反暴力干预服务？测测你的敏感度！](https://github.com/RainbowAntiViolence/RainbowAntiViolence.github.io/RBarchives2024/20240411_1想为酷儿群体提供反暴力干预服务？测测你的敏感度！.html)<br>
+- [20240206_22024彩虹暴力终结所春季放假通知](https://RainbowAntiViolence.github.io/RBarchives2024/20240206_22024彩虹暴力终结所春季放假通知.html)<br>
+- [20240213_1从片面的标签，到动态的生活酷儿出柜故事①](https://RainbowAntiViolence.github.io/RBarchives2024/20240213_1从片面的标签，到动态的生活酷儿出柜故事①.html)<br>
+- [20240216_1想让父母看见真实的我，是自私的吗？酷儿出柜故事②](https://RainbowAntiViolence.github.io/RBarchives2024/20240216_1想让父母看见真实的我，是自私的吗？酷儿出柜故事②.html)<br>
+- [20240219_1当我分别以拉拉和跨性别男性的身份出柜酷儿出柜故事③](https://RainbowAntiViolence.github.io/RBarchives2024/20240219_1当我分别以拉拉和跨性别男性的身份出柜酷儿出柜故事③.html)<br>
+- [20240226_2转载小悟生心理媒体部实习生招募，用你的内容发出多元之声！](https://RainbowAntiViolence.github.io/RBarchives2024/20240226_2转载小悟生心理媒体部实习生招募，用你的内容发出多元之声！.html)<br>
+- [20240229_1男同需要考虑的病，能不能别甩锅给异性恋？](https:/RainbowAntiViolence.github.io/RBarchives2024/20240229_1男同需要考虑的病，能不能别甩锅给异性恋？.pdf)<br>
+- [20240304_1我想用音乐作为载体，帮助到更多酷儿伙伴们。酷儿出柜故事⑤](https://RainbowAntiViolence.github.io/RBarchives2024/20240304_1我想用音乐作为载体，帮助到更多酷儿伙伴们。酷儿出柜故事⑤.html)<br>
+- [20240321_1转载南京青禾招聘性健康检测、财务行政、宣传设计、性教育课程开发，期待热心性与性别公益的你](https://RainbowAntiViolence.github.io/RBarchives2024/20240321_1转载南京青禾招聘性健康检测、财务行政、宣传设计、性教育课程开发，期待热心性与性别公益的你.html)<br>
+- [20240321_2转载招募异想健开性与性别健康友善医疗服务论坛暨性别友善空间交流会邀你来玩](https://RainbowAntiViolence.github.io/RBarchives2024/20240321_2转载招募异想健开性与性别健康友善医疗服务论坛暨性别友善空间交流会邀你来玩.html)<br>
+- [20240325_1转载上海反家暴法八周年报告：保护令核发难，亟需地方立法](https://RainbowAntiViolence.github.io/RBarchives2024/20240325_1转载上海反家暴法八周年报告：保护令核发难，亟需地方立法.html)<br>
+- [20240325_2转载人类性学来了！](https://RainbowAntiViolence.github.io/RBarchives2024/20240325_2转载人类性学来了！.html)<br>
+- [20240327_1线上沙龙投资性别平等性别公益资助研究报告发布](https://RainbowAntiViolence.github.io/RBarchives2024/20240327_1线上沙龙投资性别平等性别公益资助研究报告发布.html)<br>
+- [20240401_1向暴力说不！多元性别反暴力干预服务案例手册发布啦！](https://RainbowAntiViolence.github.io/RBarchives2024/20240401_1向暴力说不！多元性别反暴力干预服务案例手册发布啦！.pdf)<br>
+- [20240409_1传播实习生招聘柳絮纷飞，欢迎加入镇镇一起过春天！](https://RainbowAntiViolence.github.io/RBarchives2024/20240409_1传播实习生招聘柳絮纷飞，欢迎加入镇镇一起过春天！.html)<br>
+- [20240411_1想为酷儿群体提供反暴力干预服务？测测你的敏感度！](https://RainbowAntiViolence.github.io/RBarchives2024/20240411_1想为酷儿群体提供反暴力干预服务？测测你的敏感度！.html)<br>
 
 ### 2023
 -  [20231213_许光汉VOGUE造型引争议——“越发gay里gay气，还我清爽男高”？](https://RainbowAntiViolence.github.io/RBarchives2023/20231213_许光汉VOGUE造型引争议——“越发gay里gay气，还我清爽男高”？.pdf)<br>
