@@ -12,7 +12,7 @@
 - [20240321_1转载南京青禾招聘性健康检测、财务行政、宣传设计、性教育课程开发，期待热心性与性别公益的你](https://RainbowAntiViolence.github.io/RBarchives2024/20240321_1转载南京青禾招聘性健康检测、财务行政、宣传设计、性教育课程开发，期待热心性与性别公益的你.html)<br>
 - [20240321_2转载招募异想健开性与性别健康友善医疗服务论坛暨性别友善空间交流会邀你来玩](https://RainbowAntiViolence.github.io/RBarchives2024/20240321_2转载招募异想健开性与性别健康友善医疗服务论坛暨性别友善空间交流会邀你来玩.html)<br>
 - [20240304_1我想用音乐作为载体，帮助到更多酷儿伙伴们。酷儿出柜故事⑤](https://RainbowAntiViolence.github.io/RBarchives2024/20240304_1我想用音乐作为载体，帮助到更多酷儿伙伴们。酷儿出柜故事⑤.html)<br>
-- [20240229_1男同需要考虑的病，能不能别甩锅给异性恋？](https:/RainbowAntiViolence.github.io/RBarchives2024/20240229_1男同需要考虑的病，能不能别甩锅给异性恋？.pdf)<br>
+- [20240229_1男同需要考虑的病，能不能别甩锅给异性恋？](https://RainbowAntiViolence.github.io/RBarchives2024/20240229_1男同需要考虑的病，能不能别甩锅给异性恋？.pdf)<br>
 - [20240226_1你的出柜意味着父母的入柜酷儿出柜故事④](https://RainbowAntiViolence.github.io/RBarchives2024/20240226_1你的出柜意味着父母的入柜酷儿出柜故事④.html)<br>
 - [20240226_2转载小悟生心理媒体部实习生招募，用你的内容发出多元之声！](https://RainbowAntiViolence.github.io/RBarchives2024/20240226_2转载小悟生心理媒体部实习生招募，用你的内容发出多元之声！.html)<br>
 - [20240219_1当我分别以拉拉和跨性别男性的身份出柜酷儿出柜故事③](https://RainbowAntiViolence.github.io/RBarchives2024/20240219_1当我分别以拉拉和跨性别男性的身份出柜酷儿出柜故事③.html)<br>
