@@ -4,6 +4,7 @@
 <!-- - [x](https://RainbowAntiViolence.github.io/RBarchives2023/x.html)<br> -->
 ### 2024
 - [20240425_1如果不喜欢同性，是不是就不会遇到这样的事？原生家庭暴力该如何干预？](https://RainbowAntiViolence.github.io/RBarchives2024/20240425_1如果不喜欢同性，是不是就不会遇到这样的事？原生家庭暴力该如何干预？.html)<br>
+- [20240411_1想为酷儿群体提供反暴力干预服务？测测你的敏感度！](https://RainbowAntiViolence.github.io/RBarchives2024/20240411_1想为酷儿群体提供反暴力干预服务？测测你的敏感度！.html)<br>
 - [20240409_1传播实习生招聘柳絮纷飞，欢迎加入镇镇一起过春天！](https://RainbowAntiViolence.github.io/RBarchives2024/20240409_1传播实习生招聘柳絮纷飞，欢迎加入镇镇一起过春天！.html)<br>
 - [20240401_1向暴力说不！多元性别反暴力干预服务案例手册发布啦！](https://RainbowAntiViolence.github.io/RBarchives2024/20240401_1向暴力说不！多元性别反暴力干预服务案例手册发布啦！.pdf)<br>
 - [20240327_1线上沙龙投资性别平等性别公益资助研究报告发布](https://RainbowAntiViolence.github.io/RBarchives2024/20240327_1线上沙龙投资性别平等性别公益资助研究报告发布.html)<br>
