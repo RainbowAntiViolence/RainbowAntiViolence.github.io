@@ -8,6 +8,7 @@
 - [20240625_1“直尺终成卷尺”？碧梨出柜后回看Queerbaiting争议](https://RainbowAntiViolence.github.io/RBarchives2024/20240625_1“直尺终成卷尺”？碧梨出柜后回看Queerbaiting争议.pdf)<br>
 - [20240618_2转载小悟生媒体部运营专员招募！一起用内容推动多元包容社会！](https://RainbowAntiViolence.github.io/RBarchives2024/20240618_2转载小悟生媒体部运营专员招募！一起用内容推动多元包容社会！.html)<br>
 - [20240618_1法律科普下关于意定监护、财产协议和遗嘱的常见法律问题QA](https://RainbowAntiViolence.github.io/RBarchives2024/20240618_1法律科普下关于意定监护、财产协议和遗嘱的常见法律问题QA.html)<br>
+- [20240521_1在亲密关系中如何给自己和Ta更好的法律保障？](https://RainbowAntiViolence.github.io/RBarchives2024/20240521_1在亲密关系中如何给自己和Ta更好的法律保障？html)<br>
 - [20240528_1社工与法律支持者如何在多元性别反暴力干预中合作？亲密关系暴力干预服务闯关问答3](https://RainbowAntiViolence.github.io/RBarchives2024/20240528_1社工与法律支持者如何在多元性别反暴力干预中合作？亲密关系暴力干预服务闯关问答3.html)<br>
 - [20240425_1如果不喜欢同性，是不是就不会遇到这样的事？原生家庭暴力该如何干预？](https://RainbowAntiViolence.github.io/RBarchives2024/20240425_1如果不喜欢同性，是不是就不会遇到这样的事？原生家庭暴力该如何干预？.jpg)<br>
 - [20240411_1想为酷儿群体提供反暴力干预服务？测测你的敏感度！](https://RainbowAntiViolence.github.io/RBarchives2024/20240411_1想为酷儿群体提供反暴力干预服务？测测你的敏感度！.jpg)<br>
