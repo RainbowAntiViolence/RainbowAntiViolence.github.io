@@ -3,7 +3,14 @@
 
 <!-- - [x](https://RainbowAntiViolence.github.io/RBarchives2023/x.html)<br> -->
 ### 2024
--.模板：
+- 模板：
+- [20241021_1微暴力故事征集，讲出你的被冒犯时刻，一起让微暴力现身！](https://RainbowAntiViolence.github.io/RBarchives2024/20241021_1微暴力故事征集，讲出你的被冒犯时刻，一起让微暴力现身！.html)<br>
+- [20241013_1伙伴招募！镇镇邀请你谈谈微暴力](https://RainbowAntiViolence.github.io/RBarchives2024/20241013_1伙伴招募！镇镇邀请你谈谈微暴力.html)<br>
+- [20240905_1法律人才集合！多元性别友好实习机会等你来](https://RainbowAntiViolence.github.io/RBarchives2024/20240905_1法律人才集合！多元性别友好实习机会等你来.html)<br>
+- [20240904_2转载从怯步到跨越：2天解锁少数群体友善咨询新纪元，小悟生地面课程等你来](https://RainbowAntiViolence.github.io/RBarchives2024/20240904_2转载从怯步到跨越：2天解锁少数群体友善咨询新纪元，小悟生地面课程等你来.html)<br>
+- [20240904_1久久公益节还剩6天！性别公益项目合辑助你一站式资助！](https://RainbowAntiViolence.github.io/RBarchives2024/20240904_1久久公益节还剩6天！性别公益项目合辑助你一站式资助！.html)<br>
+- [20240826_1彩虹暴力终结所？中介所？一文讲清镇镇究竟是做什么的！](https://RainbowAntiViolence.github.io/RBarchives2024/20240826_1彩虹暴力终结所？中介所？一文讲清镇镇究竟是做什么的！.html)<br>
+- [20240822_1拒绝狗屁工作！性与性别公益实习机会等你来](https://RainbowAntiViolence.github.io/RBarchives2024/20240822_1拒绝狗屁工作！性与性别公益实习机会等你来.html)<br>
 - [20240808_2转载反跨猎巫与不透明性别筛查下的性别争议女运动员们](https://RainbowAntiViolence.github.io/RBarchives2024/20240808_2转载反跨猎巫与不透明性别筛查下的性别争议女运动员们.html)<br>
 - [20240808_1转载男性混入女性拳击比赛？我们做了全网最全的事实核查.html](https://RainbowAntiViolence.github.io/RBarchives2024/20240808_1转载男性混入女性拳击比赛？我们做了全网最全的事实核查.html)<br>
 - [20240709_1传播实习招募快来为反性别暴力注入能量！.html](https://RainbowAntiViolence.github.io/RBarchives2024/20240709_1传播实习招募快来为反性别暴力注入能量！.html)<br>
