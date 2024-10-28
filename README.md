@@ -3,9 +3,10 @@
 
 <!-- - [x](https://RainbowAntiViolence.github.io/RBarchives2023/x.html)<br> -->
 ### 2024
--模板：
-- [x](https://RainbowAntiViolence.github.io/RBarchives2023/x.html)<br>
-
+-.模板：
+- [20240808_2转载反跨猎巫与不透明性别筛查下的性别争议女运动员们](https://RainbowAntiViolence.github.io/RBarchives2024/20240808_2转载反跨猎巫与不透明性别筛查下的性别争议女运动员们.html)<br>
+- [20240808_1转载男性混入女性拳击比赛？我们做了全网最全的事实核查.html](https://RainbowAntiViolence.github.io/RBarchives2024/20240808_1转载男性混入女性拳击比赛？我们做了全网最全的事实核查.html)<br>
+- [20240709_1传播实习招募快来为反性别暴力注入能量！.html](https://RainbowAntiViolence.github.io/RBarchives2024/20240709_1传播实习招募快来为反性别暴力注入能量！.html)<br>
 - [20240702_1危机干预时如何使用创伤知情视角？反暴力干预服务闯关问答4](https://RainbowAntiViolence.github.io/RBarchives2024/202407202_1危机干预时如何使用创伤知情视角？反暴力干预服务闯关问答4.html)<br>
 - [20240630_1爱是想要成为自己所选择的一切，包括痛苦。](https://RainbowAntiViolence.github.io/RBarchives2024/20240630_1爱是想要成为自己所选择的一切，包括痛苦。.html)<br>
 - [20240627_1互通融合，镇在路上彩虹暴力终结所2023年报](https://RainbowAntiViolence.github.io/RBarchives2024/20240627_1互通融合，镇在路上彩虹暴力终结所2023年报.html)<br>
