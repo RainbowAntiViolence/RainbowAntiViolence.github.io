@@ -6,7 +6,7 @@
 -模板：
 - [x](https://RainbowAntiViolence.github.io/RBarchives2023/x.html)<br>
 
-- [20240702 1危机干预时如何使用创伤知情视角？反暴力干预服务闯关问答4](https://RainbowAntiViolence.github.io/RBarchives2024/202407202_1危机干预时如何使用创伤知情视角？反暴力干预服务闯关问答4.html)<br>
+- [20240702_1危机干预时如何使用创伤知情视角？反暴力干预服务闯关问答4](https://RainbowAntiViolence.github.io/RBarchives2024/202407202_1危机干预时如何使用创伤知情视角？反暴力干预服务闯关问答4.html)<br>
 - [20240630_1爱是想要成为自己所选择的一切，包括痛苦。](https://RainbowAntiViolence.github.io/RBarchives2024/20240630_1爱是想要成为自己所选择的一切，包括痛苦。.html)<br>
 - [20240627_1互通融合，镇在路上彩虹暴力终结所2023年报](https://RainbowAntiViolence.github.io/RBarchives2024/20240627_1互通融合，镇在路上彩虹暴力终结所2023年报.html)<br>
 - [20240625_1“直尺终成卷尺”？碧梨出柜后回看Queerbaiting争议](https://RainbowAntiViolence.github.io/RBarchives2024/20240625_1“直尺终成卷尺”？碧梨出柜后回看Queerbaiting争议.pdf)<br>
