@@ -10,7 +10,6 @@
 - [20241213_1我们如此不一样，但我们依旧是朋友。反暴力对话视频②](https://RainbowAntiViolence.github.io/RBarchives2024/20241213_1我们如此不一样，但我们依旧是朋友。反暴力对话视频②.html)<br>
 - [20241206_14对朋友，1场对话：聊聊那些不常谈的尖锐话题](https://RainbowAntiViolence.github.io/RBarchives2024/20241206_14对朋友，1场对话：聊聊那些不常谈的尖锐话题.html)<br>
 - [20241204_1揪出生活中的“微暴力”，打出话语“拳”](https://RainbowAntiViolence.github.io/RBarchives2024/20241204_1揪出生活中的“微暴力”，打出话语“拳”.html)<br>
-- [20241204_1揪出生活中的“微暴力”，打出话语“拳”.html](https://RainbowAntiViolence.github.io/RBarchives2024/20241204_1揪出生活中的“微暴力”，打出话语“拳”.html)<br>
 - [20241125_2【文字版】16日行动｜多元性别微暴力小测试](https://RainbowAntiViolence.github.io/RBarchives2024/20241125_2【文字版】16日行动｜多元性别微暴力小测试.html)<br>
 - [20241125_116日行动测测你是否了解身边的多元性别微暴力！.html](https://RainbowAntiViolence.github.io/RBarchives2024/20241125_116日行动测测你是否了解身边的多元性别微暴力！.html)<br>
 - [20241021_1微暴力故事征集，讲出你的被冒犯时刻，一起让微暴力现身！](https://RainbowAntiViolence.github.io/RBarchives2024/20241021_1微暴力故事征集，讲出你的被冒犯时刻，一起让微暴力现身！.html)<br>
