@@ -10,7 +10,7 @@
 - [20250127_1妈妈说：别人等了14年的那句话，我不会让你等酷儿出柜故事⑨](https://RainbowAntiViolence.github.io/RBarchives2025/20250127_1妈妈说：别人等了14年的那句话，我不会让你等酷儿出柜故事⑨.html)<br>
 - [20250129_1镇镇新春特辑酷儿春节玩儿什么？消解假期郁闷](https://RainbowAntiViolence.github.io/RBarchives2025/20250129_1镇镇新春特辑酷儿春节玩儿什么？消解假期郁闷.html)<br>
 - [20250129_22025彩虹暴力终结所春节放假通知来啦！](https://RainbowAntiViolence.github.io/RBarchives2025/20250129_22025彩虹暴力终结所春节放假通知来啦！.html)<br>
-- [20250130_1酷儿春节听什么｜降噪春节烦恼.pdf](https://RainbowAntiViolence.github.io/RBarchives2025/20250130_1酷儿春节听什么｜降噪春节烦恼.pdf)<br>
+- [20250130_1酷儿春节听什么｜降噪春节烦恼](https://RainbowAntiViolence.github.io/RBarchives2025/20250130_1酷儿春节听什么｜降噪春节烦恼.pdf)<br>
 - [20250224_1没有作业、不聊童年、暂停关系修复：支持性疗法为何成为情绪急救首选？转载](https://RainbowAntiViolence.github.io/RBarchives2025/20250224_1没有作业、不聊童年、暂停关系修复：支持性疗法为何成为情绪急救首选？转载.html)<br>
 - [20250317_1成为性别友好领域服务者需要具备哪些能力与理念？我们向你推荐这本案例手册](https://RainbowAntiViolence.github.io/RBarchives2025/20250317_1成为性别友好领域服务者需要具备哪些能力与理念？我们向你推荐这本案例手册.html)<br>
 - [20250322_1你比伤害过你的人更有力量声援阿黛拉哈内尔](https://RainbowAntiViolence.github.io/RBarchives2025/20250322_1你比伤害过你的人更有力量声援阿黛拉哈内尔.html)<br>
